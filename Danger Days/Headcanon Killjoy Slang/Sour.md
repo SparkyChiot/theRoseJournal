@@ -1,0 +1,2 @@
+#slang/inbox
+Refers to the sense of something not quite right, similar to the term “Off”. It derives from the idea of milk turning sour after it has expired. “Somethings sour with this place, I can feel it. It just doesn’t feel right.”

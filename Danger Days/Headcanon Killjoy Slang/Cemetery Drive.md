@@ -1,0 +1,2 @@
+#slang/inbox
+Those places where dracs ambush joys and many lives are lost, like old battlefields. You can see masks and jackets lying in the sand, dusted over and sun bleached. As a sign of respect, the 'joys leave them untouched, lime colorful tombstones. Only if the ghosted 'joy left you the next owner before the firefight can get it. If you happen to find one, the entire car grows silent until you've passed through it.

@@ -1,0 +1,2 @@
+#slang/inbox
+The Graffiti Bible is a collection of religious writings shared by androids of the city. The book tells their belief in Destroya, who they believe will one day free them from the oppression of the city.

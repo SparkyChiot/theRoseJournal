@@ -1,0 +1,2 @@
+#slang/inbox
+_(Verb)_ To function at one’s full potential. Alternately, to be sane. May be synonymous with **Full Power**. ([http://twitter.com/NewsAGoGo/status/23104740327](http://twitter.com/NewsAGoGo/status/23104740327))

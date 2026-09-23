@@ -1,0 +1,2 @@
+#slang/inbox
+Another name for the sunrise, most commonly used in a begrudging or sarcastic manner. “Man, alarm clock radiation always seems to arrive just a little too early.” (Definitely Fun Ghoul every morning.)

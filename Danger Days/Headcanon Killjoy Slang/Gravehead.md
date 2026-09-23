@@ -1,0 +1,2 @@
+#slang/inbox
+Refers to crazy crazy Killjoys that are maybe the last member of their group, or who otherwise have lost an immense amount, and their response is to throw themselves into fight after fight in the hopes that a Drac or a S/C/A/R/E/C/R/O/W agent get's em. If that fails, they usually either leave the zones or attack the City head-on.

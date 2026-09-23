@@ -1,0 +1,2 @@
+#slang/inbox
+Another term for Dracs and Crows, used primarily by sand pups who just don’t give a shit about dracs. These rebels were raised to shoot ‘em so they aren’t scared at all. Its derived from the colors of old police car lights and the younger generations don’t really understand this but go along with the term because they’ve heard it all their lives.

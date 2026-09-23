@@ -1,0 +1,2 @@
+#slang/inbox
+(Adjective) Might also be self-explanatory, with reference to a protection suit or tech in general. Might also be the equivalent of being at the optimal physical/mental ability. May be synonymous with **Operate on all Pistons**. ([http://twitter.com/AgentCherriCola/status/22995158806](http://twitter.com/AgentCherriCola/status/22995158806))

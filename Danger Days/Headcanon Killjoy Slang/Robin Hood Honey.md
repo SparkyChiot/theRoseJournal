@@ -1,0 +1,2 @@
+#slang/inbox
+those sleazy underground beauties that you can never take your eyes off of. Swaying hips that draw you in, and an obscene tongue that can charm any 'joy out of the drink in their hand and carbons in their pocket. (basically the opposite of floral)

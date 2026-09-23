@@ -1,0 +1,2 @@
+#slang/inbox
+_(Noun)_ Uncertain. Possible name for a piece of weaponry, whether man-made or biological. May share things in common with the **Pig Bomb**. ([http://twitter.com/NewsAGoGo/status/22985134258](http://twitter.com/NewsAGoGo/status/22985134258))

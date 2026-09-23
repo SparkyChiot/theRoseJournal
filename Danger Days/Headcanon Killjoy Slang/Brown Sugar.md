@@ -1,0 +1,2 @@
+#slang/inbox
+Patches of desert land where plants are able to grow, such as the witch's garden and Tommy's (no so) secret little greenhouse in the back of his shop. “Hey, did ya see that garden we just drove by, must be some brown sugar over in that area”

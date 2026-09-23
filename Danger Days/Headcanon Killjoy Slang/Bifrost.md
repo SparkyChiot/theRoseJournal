@@ -1,0 +1,2 @@
+#slang/inbox
+Areas of the zones that were so greatly affected by the bombs that the desert sand became glass. “This Bifrost is the most beautiful thing you’ll ever lay eyes on out here. It’s a reminder that the Zones don’t always chew you up and spit you out, sometimes they shape you, make you better”

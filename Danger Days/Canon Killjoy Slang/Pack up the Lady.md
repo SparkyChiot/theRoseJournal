@@ -1,0 +1,2 @@
+#slang/inbox
+_(Verb)_ Possibly to gather all of one’s gear. Alternately, the “Lady” may be an important piece of equipment or an actual person. ([http://twitter.com/DrDeathDefying/status/23175170754](http://twitter.com/DrDeathDefying/status/23175170754))

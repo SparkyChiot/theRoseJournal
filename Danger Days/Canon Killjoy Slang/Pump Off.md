@@ -1,0 +1,2 @@
+#slang/inbox
+_(Verb)_ Possible synonym for murder, as it calls to mind the idea of pumping a shotgun. Alternately, The act of downing a drink really fast. Alternately, a sexual slang term referencing either intercourse or assisted masturbation. ([http://twitter.com/AgentCherriCola/status/23102231112](http://twitter.com/AgentCherriCola/status/23102231112))

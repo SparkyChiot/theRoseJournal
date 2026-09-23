@@ -1,0 +1,2 @@
+#slang/inbox
+A series of large fires in 2012 which were lit by BL/ind to sabotage the killjoys but spiraled out of control and burned several neutral establishments and BL/ind factories and warehouses. BL/ind claims to not have started them, but to have put them out.

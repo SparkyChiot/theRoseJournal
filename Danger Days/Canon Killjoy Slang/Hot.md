@@ -1,0 +1,2 @@
+#slang/inbox
+ _(Adjective)_ May refer to the actual temperature, a place that is high in radiation, or dangerous. ([http://twitter.com/DrDeathDefying/status/23175170754](http://twitter.com/DrDeathDefying/status/23175170754))

@@ -1,0 +1,2 @@
+#slang/inbox
+_(Verb)_ Possibly ignoring transmissions on the radio, television, or other device. ([http://twitter.com/DrDeathDefying/status/23008949756](http://twitter.com/DrDeathDefying/status/23008949756))

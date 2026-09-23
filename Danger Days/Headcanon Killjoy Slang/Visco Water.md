@@ -1,0 +1,2 @@
+#slang/inbox
+The sticky pulp inside certain cacti that if chewed, can replenish your body’s water levels. (The term Visco derived from the word viscous which is used to describe thick or sticky liquids)

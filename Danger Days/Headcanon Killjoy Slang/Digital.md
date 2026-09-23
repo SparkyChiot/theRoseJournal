@@ -1,0 +1,2 @@
+#slang/inbox
+An important moment in time shared amongst two or more people where you can just tell that you’ll never forget it. Digital moments are extremely important in the zones because they’re believed to be what separates a rebel from city folk. People in the city don’t get to have digital moments because they’re unable to feel anything, therefore no moment is special.

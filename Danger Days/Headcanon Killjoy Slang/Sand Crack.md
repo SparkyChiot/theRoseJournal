@@ -1,0 +1,2 @@
+#slang/inbox
+A term used to describe something/someone annoying, derived from the sensation of sand in your pants, a generally annoying sensation indeed. “Why don’t you dive side street you fucking sand crack.”

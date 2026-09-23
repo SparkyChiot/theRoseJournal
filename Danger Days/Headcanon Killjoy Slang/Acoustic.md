@@ -1,0 +1,2 @@
+#slang/inbox
+someone who chooses to us an old-fashioned gun as supposed to a laser one. the most common reason for this is because they want as little dissociation with bli as possible, this includes their technology.

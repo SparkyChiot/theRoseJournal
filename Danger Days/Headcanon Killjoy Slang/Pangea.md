@@ -1,0 +1,2 @@
+#slang/inbox
+A gathering of three or more gangs to discuss pressing topics, the likes of which may vary. “There’s a Pangea going on tomorrow at sundown and I think you should be there, boss says it’s urgent.”

@@ -1,0 +1,2 @@
+#slang/inbox
+The actual slums of the city, Drac patrols are high here as most delinquents reside here. The place where you end up when you’re out of luck or trying to escape from city proper or escaping from the desert. They all end up there. It has little access to the benefits of BL/ind and is often looked over by them as nothing more than a blemish on their perfect city.

@@ -1,0 +1,2 @@
+#slang/inbox
+Used to describe new rebels to the zones that haven’t seen a fire fight or anything cruel of the zones. Similar to the term ‘Squeaky’, but specifically directed towards batt rats, where as you can be a desert born but still be Squeaky.

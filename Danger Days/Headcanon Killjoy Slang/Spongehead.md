@@ -1,0 +1,2 @@
+#slang/inbox
+That one asshole in the gang who seems to use up all the group resources (e.g. eating excess amounts of food, wasting gas by driving everywhere, buying unnecessary bullshit from chow mein). They are most likely city born.

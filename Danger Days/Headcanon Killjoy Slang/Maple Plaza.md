@@ -1,0 +1,2 @@
+#slang/inbox
+Places in the desert (mainly zones 5 and 6) where radiation is still thick and dangerous. “Steer clear of zone 6 as much as you possibly can, the whole thing is just one big maple fucking plaza.”

@@ -1,0 +1,2 @@
+#slang/inbox
+A cultural landmark in the Zones. It is elaborately decorated and filled with art and letters. Some rebels take the masks of the dusted to the mailbox so that their souls will be safely passed along to the [[Phoenix Witch]].

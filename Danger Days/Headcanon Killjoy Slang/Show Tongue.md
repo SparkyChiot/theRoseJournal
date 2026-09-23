@@ -1,0 +1,2 @@
+#slang/inbox
+to basically be a smart ass to someone, usually in a situation that can get them hurt, used by juvie halls, named after a HC that they basically put a whole bunch of colors on their tongue as a way to show they are aligned with the cause and stick them out as a sign of defiance

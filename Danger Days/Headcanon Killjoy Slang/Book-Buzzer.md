@@ -1,0 +1,2 @@
+#slang/inbox
+Book-worms who never really gave it up, will trade carbons, water, power-pup, or even other books for a book. Typically teaches some of the other Joys about reading and definitions of words. You can find them in groups with each other, drive trucks. “Yeah that guy over there, tell him ‘bout that book. Total Book-Buzzer, might run some errands for ya.”

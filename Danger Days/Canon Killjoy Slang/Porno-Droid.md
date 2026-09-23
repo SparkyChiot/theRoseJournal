@@ -1,0 +1,2 @@
+#slang/inbox
+A derogatory term for zone sex workers, sometimes used in relation to kinks such as degradation, humiliation, and objectification.  This term was originally taken from a Bl/ind product of the same name, furthering the degrading aspect of it. “He’s the perfect little porno-droid, just as long as you have enough carbons.”

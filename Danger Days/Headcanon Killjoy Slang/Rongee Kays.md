@@ -1,0 +1,2 @@
+#slang/inbox
+the kids that wander from party to party, who've long since abandoned their homes, and pasts and are only recognizable under strobe lights. It's an incredibly easy scene to wiggle your way into, just as long a you follow the faint trail of zoneweed smoke.

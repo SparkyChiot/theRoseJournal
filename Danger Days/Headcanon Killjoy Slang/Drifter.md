@@ -1,0 +1,2 @@
+#slang/inbox
+A word for a someone who prefers one-night stands to romantic relationships. “See that guy? Total fuckin’ drifter, man. You’ll never see him two nights in a row.” Not to be confused with ‘Drifting’.

@@ -1,0 +1,2 @@
+#slang/inbox
+Someone with a disability, more commonly a physical disability that requires the use of a mobility aid. Once an endearing term, it’s found to be more a touch more derogatory now. The older generation tend to use it most. “You know Doctor Death? That old sparkie is the life of the party when you get him going.” (Suggested by Jellybeans135)

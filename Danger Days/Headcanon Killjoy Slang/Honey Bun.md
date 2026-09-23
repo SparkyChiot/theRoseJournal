@@ -1,0 +1,2 @@
+#slang/inbox
+someone who's so nice to the point where you can't help but question their intention. their smile is a bit like bubblegum that's too sweet, and you check every helping hand they offer for a knife that might just end up in your back.

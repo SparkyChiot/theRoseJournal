@@ -1,0 +1,2 @@
+#slang/inbox
+A rebel who hasn’t left the city for various reasons. Since Juvie Halls don’t take the pills, they are delinquents in the city’s eyes. Often split into two factions, those who actively fight the system from within, and those who smuggle things in and out of the city. (HC: Desolation Row is totally an AU where the Killjoys stayed in the city and became Juvie Halls)

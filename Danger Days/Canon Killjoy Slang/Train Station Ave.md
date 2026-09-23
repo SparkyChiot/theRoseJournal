@@ -1,0 +1,2 @@
+#slang/inbox
+A spot along Route Guano that’s travelled extremely often, making it a popular place for hitchhiking joys to pick up a ride. “Be careful down Train Station Avenue, you never know what type ‘a Chilly fucker could be getting into your car.”

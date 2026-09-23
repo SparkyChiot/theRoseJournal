@@ -1,0 +1,2 @@
+#slang/inbox
+The realm of the Juvie Halls set in the old subway systems built before the city. BL/ind have a hard time controlling this area as they lack knowledge on exactly how large these systems are.

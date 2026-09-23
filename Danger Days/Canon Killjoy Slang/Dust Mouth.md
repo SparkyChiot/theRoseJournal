@@ -1,0 +1,2 @@
+#slang/inbox
+_(Noun)_ A condition that leaves one dry, parched, thirsty. ([](http://twitter.com/AgentCherriCola/status/23102231112)[http://twitter.com/AgentCherriCola/status/23102231112](http://twitter.com/AgentCherriCola/status/23102231112))

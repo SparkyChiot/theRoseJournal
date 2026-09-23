@@ -1,0 +1,2 @@
+#slang/inbox
+Also known as Battery Acid in the Zones. Better Living Industries urges its citizens to “curl up next to a warm blaster, pop a capsule, and thank the heavens for the corporation who cares for you…in an affordable little bottle.”

@@ -1,0 +1,2 @@
+#slang/inbox
+The initiation rituals that one must do in order to prove themselves deserving of joining a certain gang (most commonly the bigger, more powerful ones). These rituals can range from harmless humiliation pranks to committing serious city crimes which can result in being arrested or being killed. “Fuck, I got my audition tomorrow, what do you think they’ll make me do?”

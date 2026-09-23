@@ -1,0 +1,2 @@
+#slang/inbox
+an insult to call someone untrustworthy or you suspect them to be working for BLi (going off the fact that the closer to the center of Battery City you get, the more BLi influence you seem)

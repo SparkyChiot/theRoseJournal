@@ -1,0 +1,2 @@
+#slang/inbox
+“The border separating each zone from the next. Picket fences re labelled by the number that corresponds with the zone they border. "The road leading to Picket Fence 1 is fuckin’ swarmed by dracs, get out of the area while you can.”

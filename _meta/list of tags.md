@@ -1,0 +1,18 @@
+## Emotions
+- Anticipation
+- Awe
+- Amusement
+- Anger
+- Annoyance
+- Anxiety
+- Attentiveness
+- Boredom
+- Confusion
+- Contempt
+- Cynical
+- Deception
+- Defensive
+- Desire
+- Disbelief
+- Disgust
+- 

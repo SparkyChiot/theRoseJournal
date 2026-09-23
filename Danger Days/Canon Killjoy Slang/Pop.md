@@ -1,0 +1,2 @@
+#slang/inbox
+_(Verb)_ Explode. Burst. ([http://twitter.com/AgentCherriCola/status/22995158806](http://twitter.com/AgentCherriCola/status/22995158806)) Alternately, to take pills. ([http://twitter.com/DrDeathDefying/status/22943275888](http://twitter.com/DrDeathDefying/status/22943275888))

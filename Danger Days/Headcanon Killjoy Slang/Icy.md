@@ -1,0 +1,2 @@
+#slang/inbox
+When someone dies in a sketchy way, based off the term ‘chilly’ meaning someone suspicious. “Did you hear about ----? Yeah, they were ghosted just last night. It’s pretty icy what happened.”

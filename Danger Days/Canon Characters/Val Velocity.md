@@ -1,0 +1,1 @@
+The leader of the Ultra Vs and one of the comic's antagonists.

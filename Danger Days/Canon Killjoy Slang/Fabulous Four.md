@@ -1,0 +1,2 @@
+#slang/inbox
+A famous group of Killjoys consisting of Party Poison, Kobra Kid, Fun Ghoul, and Jet Star. Sometimes known as the Fabulous Killjoys. They died in 2019 and became even more popular, with action figures and posters being made of them.

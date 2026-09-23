@@ -1,0 +1,2 @@
+#slang/inbox
+That single moment right after a firefight when the survivors are left standing in the settling dust, wondering if the blood they’re covered in belongs to themselves, a drac, or their fellow gang members and friends.

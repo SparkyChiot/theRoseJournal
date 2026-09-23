@@ -1,0 +1,2 @@
+#slang/inbox
+The zone term for moonshine. Can be used as a noun or as a greeting. “I got some cordial last night" in terms of drinking, or "a cordial greeting" could be a thing that happens at bonfires, where everyone gets a drink.

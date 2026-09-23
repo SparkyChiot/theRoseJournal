@@ -1,0 +1,2 @@
+#slang/inbox
+A relationship which is not strictly platonic, sexual or romantic, but a kind of mix of the three. It’s a go-with-the-flow, no-shame, whatever-happens-happens kind of thing. “We have a drifting relationship. It’s fun, so freeing to other relationships I’ve had.” Not to be confused with ‘Drifter’

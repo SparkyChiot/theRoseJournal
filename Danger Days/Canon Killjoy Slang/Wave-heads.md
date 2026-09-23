@@ -1,0 +1,2 @@
+#slang/inbox
+_(Noun)_ A possible new “breed” of humans to surface as the result of genetic mutation. Physically unstable. Prone to **popping**. ([http://twitter.com/AgentCherriCola/status/22995158806](http://twitter.com/AgentCherriCola/status/22995158806))

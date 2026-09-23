@@ -1,0 +1,2 @@
+#slang/inbox
+_(Adjective)_ When not used to describe the frosty treat, might refer to a place that is cool (as in temperature), low in radiation, or safe. ([http://twitter.com/DrDeathDefying/status/23175170754](http://twitter.com/DrDeathDefying/status/23175170754))

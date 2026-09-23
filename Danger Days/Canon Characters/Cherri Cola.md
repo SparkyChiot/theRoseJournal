@@ -1,0 +1,1 @@
+A friend of the Fabulous Four who acts as a friend/mentor to The Girl.

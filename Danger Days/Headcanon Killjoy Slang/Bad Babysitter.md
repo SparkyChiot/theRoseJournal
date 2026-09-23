@@ -1,0 +1,2 @@
+#slang/inbox
+A crew leader who might be inexperienced or just ineffectual, but either way can’t keep their kids from constantly butting heads and tearing into one another - their intentions are probably good, but they just don’t cut it being in charge. (Party Poison is like, the worst babysitter ever ‘cause Ghoul is always jumping from place to place and setting shit on fire, Kobra steals the car all the time and Jet is the true babysitter of the group.)

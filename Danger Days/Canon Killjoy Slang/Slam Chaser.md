@@ -1,0 +1,2 @@
+#slang/inbox
+_(Noun)_ Possibly a drink served in bars. Alternately, a group of people (ex., as in a motorcycle gang). Alternately, a new “breed” of humans to surface as the result of genetic mutation. ([http://twitter.com/AgentCherriCola/status/23102231112](http://twitter.com/AgentCherriCola/status/23102231112))

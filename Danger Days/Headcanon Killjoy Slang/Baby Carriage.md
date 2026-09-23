@@ -1,0 +1,2 @@
+#slang/inbox
+That trusty ol’ car that’s been with you through heated firefights and freezing desert nights alike. Hitting the red line in that thing is comes second nature and sleeping the back seat feels like home. “A Motorbaby’s baby carriage is more loyal than most rebels, remember that.”
