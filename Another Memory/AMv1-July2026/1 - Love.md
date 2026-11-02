@@ -18,4 +18,6 @@ A noise cut through the buzzing in his head, a soft voice. “Oh hi! I’m Yuka,
 
 “Well, I like your hair, Kozume-san, it’s unique!” Kuroo gave him a smug grin. Kenma knew she was probably just being nice, there’s not really any reason for him to believe she was interested in him. Still, he appreciated the compliment, even if it wasn’t exactly what he was going for.
 
-“Thank you,” he spoke softly, ”you can just call me Kenma.”
+“Thank you,” he spoke softly, ”you can just call me Kenma.” As he let his gaze drift up again, his eyes landed on the red 3DS in Yuka's hands and he fixated on it, suddenly more interested in talking to her. "What games do you play?" he asked, a bit too quickly. She seemed to perk up a bit at the question too, and Kuroo seemed pleased with his newfound confidence. 
+
+"I'm a big Pokemon fan! I'm playing White 2 right now." Kenma's hands buzzed with anxiety and happiness 
