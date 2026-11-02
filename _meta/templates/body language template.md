@@ -1,4 +1,0 @@
----
-type: body-language
-emotion:
----
