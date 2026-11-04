@@ -1,0 +1,11 @@
+- podfic
+- fanbind
+	- of your own fics
+	- of other fics 
+- fanfic
+- fanart
+	- of fic
+	- of media
+	- of AU
+- fanlore and the OTW
+- fan wikis
