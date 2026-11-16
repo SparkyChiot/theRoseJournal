@@ -1,0 +1,4 @@
+- 5 times Grian was Scar's hero + 1 time Grian needed saving
+- 5 times Grian wanted to tell Scar he loves him + the 1 time he finally did
+- "fine, keep acting like you hate me."
+- "if i didnt know any better i'd say you were jealous"

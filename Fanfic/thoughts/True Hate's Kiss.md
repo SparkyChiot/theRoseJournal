@@ -1,0 +1,1 @@
+True hate's kiss where they have to convince their mortal enemy to kiss them otherwise they die, but when they finally get that kiss it's revealed the one they thought was their enemy is actually their true love, thus the kiss does not break the spell and they die in their newfound love's arms.
