@@ -9,4 +9,4 @@ He glanced down toward his home, his and Scar's home, and tucked his wings to sw
 "Grian there you are! i've been looking all over! Listen, i may have set Joel's base on fire and he may be out for revenge, and-"
 "Scar, if you're going to set a fire you need to take someone out with it. There's no use making enemies!" Grian's tone was teasing, but Scar was red, they both knew one wrong move meant the end. 
 "I know! I tried! but he had fire resistance and came at me with an axe! I'm lucky to be back here in one piece!" 
-*you're lucky to be back here at all* "Well what's the game plan?"
+*you're lucky to be back here at all* "Well what's the game plan? "
